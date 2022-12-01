@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sachin_Sharma
-- 👀 I’m interested in well and organized codes.
+- 👀 I’m interested in challenges and problem solving.
 - 🌱 I’m currently learning many things.
 - 💞️ I’m looking to collaborate with my ambitions.
 - 📫 How to reach me -> @warningsvirus27@gmail.com
